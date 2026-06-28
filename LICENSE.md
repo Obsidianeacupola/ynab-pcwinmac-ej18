@@ -1,4 +1,4 @@
-# 
+# Inteligente YNAB complementos para Mac OS | Elite YNAB complementos para PC Windows. Com histórico de versões e atualizações em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
